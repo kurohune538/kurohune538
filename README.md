@@ -1,4 +1,4 @@
-# Yamico--@kurohune538
+# Yamico(Shin)--@kurohune538
 
 Hi! I'm Yamico -- working as a media artist and creative technologist in Tokyo, Japan. (Currently in NY)
 
